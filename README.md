@@ -1,3 +1,4 @@
+<p align="center">
 <img src="https://pixelbank.neocities.org/div/multi/514.gif">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true)<img src="https://pixelbank.neocities.org/text/welcome/28.gif"><br><img src="https://pixelbank.neocities.org/emoticon/big/7.gif"><img src="https://pixelbank.neocities.org/text/mail/10.gif">
@@ -8,6 +9,8 @@
 <img src="https://pixelbank.neocities.org/div/multi/280.gif">
 <img src="https://pixelbank.neocities.org/div/multi/278.gif">
 <img src="https://pixelbank.neocities.org/div/multi/514.gif">
-<img src="">
+
+<p align="center"> 
+<img src="https://i.postimg.cc/4dGnZV2D/IMG-9737-ezgif-com-resize-(1).jpg"><img src="https://i.postimg.cc/VvDJKvgs/IMG-9738-ezgif-com-resize-(1).jpg"><img src="https://i.postimg.cc/vHxyqD3C/IMG-9739-ezgif-com-resize.jpg">
 <img src="https://pixelbank.neocities.org/div/multi/514.gif">
 
