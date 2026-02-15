@@ -14,7 +14,7 @@
 <img src="https://i.postimg.cc/fk4fFYVK/blinkies-Cafe-KG-(1).gif">
 <li>Baaic dni crit</li>
 <li>radqueers unless you are recovering</li>
-<li>sysmeds, as a OSDD-1, why are you invading someone's disorder??? lol...</li>
+<li>sysmeds, as a OSDD-1, why are you invading someone's disorder??? lol... blocked.</li>
 <li>the fans of phighting fandom who have HURT/verbal abuse ME in the past, i'm looking at you astro/Swervy7, and any of his friends.../hvyneg</li>
 <li>the loud house(the show)</li>
 <li>anti fictionkin/systems/alterhumans</li>
