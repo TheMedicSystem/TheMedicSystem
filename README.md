@@ -1,7 +1,10 @@
-<p align="center">
+
+
 <img src="https://pixelbank.neocities.org/div/multi/514.gif">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true)<img src="https://pixelbank.neocities.org/text/welcome/28.gif"><br><img src="https://pixelbank.neocities.org/emoticon/big/7.gif"><img src="https://pixelbank.neocities.org/text/mail/10.gif">
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true)<img src="https://biscuit.crd.co/assets/images/gallery100/832aadfa.gif?v=cc1c6dfa">
+<p align="center"><img src="https://64.media.tumblr.com/19e6a787e97112b929461f2b98a41626/04da1296ff37bc54-1f/s250x400/a8284213bb7c79cfb26579403122d020297990bc.gifv"><br><img src="https://pixelbank.neocities.org/emoticon/big/7.gif"><img src="https://pixelbank.neocities.org/text/mail/10.gif">
+  
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=orange)
 <p>Hello fellow Vistors! you can call me, Medkit/Kippie/Garbo/Caretaker/Shedletsky,, I'm mostly known and Called 'Kiz' :D, This info is for Ponytown for system info. However if you found this because my main github @TrueEyeCoreMedkit... Congrats!!1, well here's few things to know me!:</p>
 <li>I'm a MInor(15, feburary 17th hehe)</li><li>I'm a Traumagenic OSDD-1A system</li><li>Main Pronouns She/any, i do not mind any pronouns, however, please use she/her as clarification.</li><li>i'm an bright colors stamp, dividers, and favicon fangirl,, owoah... BASED??!! POGGERES???</li><li>I'm a fictionkin., otherkin and IRL,, yess i love my kintypes like familyy~~!!</li><li>1# Boggles simp... i'm looking at YOU, boggles cosplayers/kins/systems.... as a gabro<3... (platonic only!!), i don't talk abt yumeshipping unless friend loll</li>
@@ -11,7 +14,7 @@
 <img src="https://pixelbank.neocities.org/div/multi/115.png">
   
 <img src="https://pixelbank.neocities.org/div/multi/280.gif">
-<img src="https://i.postimg.cc/fk4fFYVK/blinkies-Cafe-KG-(1).gif">
+<img src="https://64.media.tumblr.com/tumblr_ma30e730ed1rtu4cho1_250.gif"><img src="https://i.postimg.cc/fk4fFYVK/blinkies-Cafe-KG-(1).gif">
 <li>Baaic dni crit</li>
 <li>radqueers unless you are recovering</li>
 <li>sysmeds, as a OSDD-1, why are you invading someone's disorder??? lol... blocked.</li>
